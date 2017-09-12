@@ -1,1 +1,0 @@
-# SuperDeal_template
